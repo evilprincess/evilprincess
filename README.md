@@ -1,5 +1,7 @@
 <div align="center">
-!!DO NOT COPY MY PONIES PLEASEEEEEEEE DUDE!!
+
+## DO NOT COPY MY PONIES PLEASEEEEEEEE
+
 <img src="https://files.catbox.moe/6flj0r.png"><br>
 
 
