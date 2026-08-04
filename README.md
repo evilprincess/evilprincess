@@ -18,6 +18,7 @@ offtab 99% of the time, usually sitting with my boyfriend<br>
 </summary>
   i can tell the difference between fiction and reality.<br>
   im pro mogai and good faith labels<br>
+  endo neutral, im a singlet i dont care<br>
 </details> 
 
 i have no ${\textsf{\color{#C994C0}dni}}$, i block freely
