@@ -9,7 +9,7 @@
 <img src="https://files.catbox.moe/x4q7t8.png" align="center" width="40%"> <br>
 ${\textsf{\color{#A482B0}viscera}}$ ♡ i use it/he/she pronouns. i'm ${\textsf{\color{#F2B4CF}18}}$ <br>
 i have autism and bpd, be patient with me please<br>
-offtab 99% of the time, usually sitting with my boyfriend<br>
+offtab 99% of the time, usually sitting with my boyfriend. c+h always fine idm!<br>
 
 <img src="https://files.catbox.moe/luupt6.png" align="center" width="15%">
 
